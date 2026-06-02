@@ -1,4 +1,4 @@
-# 
+# Personalizado QuickBooks fluxo de trabalho para Mac OS | Instantâneo QuickBooks fluxo de trabalho para PC Windows. Com processamento em lote e rastreamento de despesas dedutíveis — otimizado para máximo desempenho em cada plataforma.
 
 
 
